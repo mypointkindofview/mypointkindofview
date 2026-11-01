@@ -1,8 +1,6 @@
 <div align="center">
   
-𐔌  **Sop** hie 𓏵  **sid** ney ⁺ 🎀 ︵ ༺ 
-
-PLEASEPLEASE PLEASE BE MYFRIEND
+𐔌  **Sop** hie  ,,    **sid** ney ⁺ ♡ ︵ ༺ 
 
 
   𓂃  she , her  ꕮ 15
@@ -20,16 +18,15 @@ PLEASEPLEASE PLEASE BE MYFRIEND
 
 -𝐢𝐦 𝐚 *𝐦𝐢𝐧𝐨𝐫* 𝐭𝐡𝐨,𝐢 𝐝𝐨 𝐚𝐜𝐜𝐞𝐩𝐭 𝐚𝐥𝐥 𝐚𝐠𝐞𝐬 𝐭𝐨 𝐛𝐞 𝐢𝐧𝐭𝐞𝐫𝐚𝐜𝐭𝐢𝐧𝐠,𝐩𝐥𝐞𝐚𝐬𝐞 𝐝𝐨𝐧'𝐭 𝐛𝐞 𝐰𝐞𝐢𝐫𝐝.
 
--𝐢 𝐦𝐚𝐲 𝐝𝐢𝐬𝐭𝐚𝐧𝐜𝐞 𝐦𝐲𝐬𝐞𝐥𝐟. 𝐢𝐦 𝐬𝐨𝐫𝐫𝐲,𝐈 𝐬𝐨𝐦𝐞𝐭𝐢𝐦𝐞𝐬 𝐟𝐞𝐞𝐥 𝐥𝐢𝐤𝐞 𝐢 𝐟𝐚𝐢𝐥 𝐩𝐞𝐨𝐩𝐥𝐞 𝐚𝐧𝐝 𝐢𝐦 𝐧𝐨𝐭 𝐞𝐧𝐨𝐮𝐠𝐡. 𝐝𝐞𝐩𝐫𝐞𝐬𝐬𝐢𝐨𝐧 (𝐝𝐢𝐚𝐠𝐧𝐨𝐬𝐞𝐝) 𝐢𝐬 𝐫𝐞𝐚𝐥𝐥𝐲 𝐡𝐚𝐫𝐝 𝐭𝐨 𝐝𝐞𝐚𝐥 𝐰𝐢𝐭𝐡,𝐩𝐥𝐞𝐚𝐬𝐞 𝐝𝐨 𝐠𝐢𝐯𝐞 𝐦𝐞 𝐭𝐢𝐦𝐞. ( 𝐢 𝐰𝐢𝐥𝐥 **𝐧𝐞𝐯𝐞𝐫** 𝐛𝐥𝐨𝐜𝐤 𝐨𝐫 𝐮𝐧𝐟𝐫𝐢𝐞𝐧𝐝. 𝐮𝐧𝐥𝐞𝐬𝐬 𝐲𝐨𝐮 𝐝𝐨 𝐬𝐨𝐦𝐞𝐭𝐡𝐢𝐧𝐠.)
 
 </details>
 
 ︵︵︵ ๑ ♡ ๑ ︵︵︵
 
-$\color{#6772f0}{proud~ofyuu<3}$
+$\color{#6772f0}{sharing}$
 
 <div align="center">
-<img src="128261924_pM5hYJwplViZtl1.png" width="200" height="200" alt="Description">
+<img src="lelouch-lamperouge-geass.gif" width="200" height="200" alt="Description">
 
 
-sitetampo's 1# fan
+> o >
